@@ -2,7 +2,7 @@ Kelompok 16
 
 Anggota:
 
-Ferbry Muharalisandy Melchi(2201020056)
+Ferbry Muharalisandy Melchi (2201020056)
 Azmira (2101020051)
 Cahya Nabila (2101020054) 
 Yurike Anggraini (2101020014)
